@@ -10,7 +10,7 @@ Dough:
 2 tbsp olive oil
 Sauce:
 ½ cup tomato paste or pizza sauce
-1 tsp dried oregano
+1 tsp dried oreganos
 1 tsp garlic powder (optional)
 Salt and pepper to taste
 Toppings (choose what you like):
